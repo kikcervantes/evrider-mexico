@@ -1,1 +1,0 @@
-# evrider-mexico
